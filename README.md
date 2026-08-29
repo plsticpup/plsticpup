@@ -8,6 +8,6 @@
 
 ![](https://i.postimg.cc/mrFgKKRx/952f246554e4222855e172a9db398166.jpg)
 
-[i](https://plsticpup.atabook.org)⠀[ii](https://plsticpup.straw.page/)⠀iii
+[i](https://plsticpup.atabook.org)⠀[ii](https://plsticpup.straw.page/)⠀[iii](https://rentry.org/plsticpup)
 
 <img width="99" height="56" alt="0119" src="https://i.postimg.cc/pLcCXG70/export1787957325132.png" /> <img width="99" height="56" alt="0119" src="https://github.com/user-attachments/assets/c4ae6060-b488-4f24-b281-c9776666d1bc" />
