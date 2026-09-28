@@ -11,3 +11,11 @@
 [i](https://plsticpup.atabook.org)⠀[ii](https://plsticpup.straw.page/)⠀[iii](https://rentry.org/plsticpup)
 
 <img width="99" height="56" alt="0119" src="https://i.postimg.cc/pLcCXG70/export1787957325132.png" /> <img width="99" height="56" alt="0119" src="https://github.com/user-attachments/assets/c4ae6060-b488-4f24-b281-c9776666d1bc" />
+
+<details>
+  <summary>big thanks</summary>
+  
+[@paw-town](https://github.com/paw-town) [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@casinotown](https://github.com/casino-town) [@entitlement-town](https://github.com/entitlement-town) [@music-town](https://github.com/music-town)
+
+im nominated on too many pt nom accs to remember so i may have forgotten some, pls lmk in my atabook if i have ^_^
+</details>
