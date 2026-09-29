@@ -15,7 +15,7 @@
 <details>
   <summary>big thanks</summary>
   
-[@paw-town](https://github.com/paw-town) [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@casinotown](https://github.com/casino-town) [@entitlement-town](https://github.com/entitlement-town) [@music-town](https://github.com/music-town)
+[@paw-town](https://github.com/paw-town) [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@casinotown](https://github.com/casino-town) [@entitlement-town](https://github.com/entitlement-town) [@music-town](https://github.com/music-town) [@ponytown-rewards](https://github.com/Ponytowns-rewards)
 
 im nominated on too many pt nom accs to remember so i may have forgotten some, pls lmk in my atabook if i have ^_^
 </details>
